@@ -1,6 +1,6 @@
 Privacy Policy
 
-This privacy policy explains how your information is handled in the mobile game Pauzzl (hereafter referred to as “the Game”), developed and published by us.
+This privacy policy explains how your information is handled in the mobile game Pauzzle (hereafter referred to as “the Game”), developed and published by us.
 
 1. Information Collection
 
